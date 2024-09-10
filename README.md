@@ -3,7 +3,7 @@
 
 - 👨‍💻 All of my projects are available at [https://www.abhishekjoshi.xyz/](https://www.abhishekjoshi.xyz/)
 
-- 📫 How to reach me **abhishek.joshi@joshtechnologygroup.com**
+- 📫 How to reach me **abhishekjoshiofficial24@gmail.com**
 
 - ⚡ Fun fact **turtles can breathe through their butts**
 
